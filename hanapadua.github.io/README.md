@@ -1,1 +1,0 @@
-# hanapadua.github.io
